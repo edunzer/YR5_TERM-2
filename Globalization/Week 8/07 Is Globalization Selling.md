@@ -1,0 +1,21 @@
+## 07 IS GLOBALIZATION "SELLING"
+
+Is the market all-pervasive? How is globalization "selling" more "things" to more people? The web blinks in the module have taken you to several new realms of "selling". For your original discussion posting, pick one of these and present your thoughts on the following.  Don't all pick the same one.
+
+- What kind of "capital" is it?
+- What is going on?
+- Is it a truly new form of commodity or has it been "updated" by globalization?
+- Is it "right" that this should be commodified?
+- What are the social implications of this commodification (or acceleration under conditions of globalization)? To get at this question, read the following paragraph.
+
+I want you to ponder what the impact of pervasive commoditization is on society.  Are there other ways to distribute goods and services that build relationships rather than profit?  Check out these two links on "reciprocity (Links to an external site.)" and "trade (Links to an external site.)" and consider how it's different from the expanding commoditization we see under the liberal model of globalization.  What is the difference within a society between a "gift" and a "purchase"?  Post your thoughts on the discussion board.   
+
+I think out of all the article options "Tweeting all the way to the bank" is the one that involves the most kinds of capital. Although the article details the simple earnings of twitter which would fall under "financial capital" there could be a case made for many other different kinds of capital as well. Since twitter is considered a social network it has a very large amount of capability that give it access to human capital, social, intellectual, cultural, and experiential.  Although they mostly do not create many of these types of capitals they do control the access that other people have them which is where the monetization and commodification comes into play. 
+
+There is also no doubt that globalization has lead to the increase and possibly creation of social network commodification. One of the main reasons for social medias success is that it connects people from anywhere and allows knowledge, and social sharing, which is one of the core principles of globalization.  
+
+As far is it being "right" to be commodified ill share my opinion but wont state that one is either right or wrong. When it comes to social media almost every app, network, etc. was started and founded on the principle that it is not a pay for service. Obviously for many people this was a terrible business model early on and that is why so many people didnt understand it and how it could be feasible. Internal costs for employees, company space, and tech costs are especially large costs for companies like this.  
+
+So when it became common knowledge that companies like facebook where earning there money through commodification of user data and ads the rapid understanding that many people faced seemed to block there true understanding or what is happening. Instead of paying for a service that could easily be charged at hundreds of dollars a month you are getting it for free. There was no forceful nature in which these companies demanded you to use there services so in my opinion it was a tactical business move to create a product that does not receive direct consumer capital. Therefore I do think it is "right" to be commodified since it was a previously unused area that gave way to a entire new market sector and increased economic growth.  
+
+Now as stated above many people did not like this new commodification of what they felt was personal details that should only be personal to them. I definitely do agree that because of the lack of knowledge and ignorance of a average social media user before 2010 social media companies were able to pervasively commodify user data. There is no doubt that if the people that are so against user data today knew this going into the creation of social media they would have not supported it and the possible growth of such companies would not have been the same. 
